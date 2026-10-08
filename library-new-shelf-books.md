@@ -171,7 +171,7 @@ One book between Age Like a Girl and Unbreakable is shelved with its back cover 
 148. The Look — Michelle Obama with Meredith Koop
 149. A Biography of a Mountain: The Making and Meaning of Mount Rushmore — Matthew Davis
 
-One thin book wedged between Stand and Declaring Independence has its spine almost fully hidden, so it could not be identified.
+One thin book wedged between Stand and Declaring Independence has its spine almost fully hidden, so it could not be identified. The face-out cover behind Sloppy on the literature shelf is a second copy of We Contain Landscapes.
 
 ## Biography, middle shelf (photos 4, 14, 15)
 
@@ -245,6 +245,8 @@ One thin book wedged between Stand and Declaring Independence has its spine almo
 211. With Love from Harlem — ReShonda Tate
 
 ## Fiction, lower shelf (photos 6, 11)
+
+One dark spine with pink rose artwork sits between Heir of Illusion and Lives of Bitter Rain with no readable text or label, so it could not be identified.
 
 212. Heir of Illusion (Verran Isles, Book 1) — Madeline Taylor
 213. Lives of Bitter Rain — Adrian Tchaikovsky
